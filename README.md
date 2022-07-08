@@ -1,1 +1,116 @@
 # Flower-Medicine
+
+Flower Medicine
+820667120
+##Dr Seshathri
+8838793089
+Heal Thyself
+- Loneliness
+	- 3 Flowers
+		- Impatients
+			- Who do all things faster without hesitation or delay
+			- They feel difficult to be with slow people
+			- They want things to be done immediately without delay
+			- They prefer doing things on their own to complete faster rather than collaboration as they prefer doing it fast
+		- Heather
+			- Who always wants to share their problems and difficulties always
+			- As they spread too much negativity on their words and they are forced to be alone
+		- Water Violet
+			- Very Independent, too much proud and feels like to be alone
+			- Very Quiet and feels like others people are less talented and waste of time
+			- Capable & Self-Reliant
+			- Love to be alone and happy
+	- Fear
+		- RockRose
+			- Digil bayam or situational fear. Let's say if i'm fearful at the moment and gets normal after sometime
+			- Mind blocked due to shock or fear or may go to unconsciousness
+		- Mimulus
+			- Fear can be explained as people gets fear of water, room or some material or place etc.
+		- Cherry Plum
+			- Fear of losing self
+			- Aggressive of breaking things or hurting themselves due to lack of control
+			- Want to have drinks after a particular time and it may cause them to shake hands or soeme other actions
+			- Controls the Anger or body
+			- Uncontrollable emotion leads to unexpected actions
+		- Aspen
+			- Fear of something may happen
+			- Afraid to share the fear or trouble with others
+			- Forecasts fear of doing something may happen if i do this
+			- Unexplainable fear
+		- Red Chestnut
+			- Fear due to high care or adheedha pasathinaal erpadum bayam
+			- Tells child to go carefully while walking or riding bike etc
+	- Uncertainity
+	- Not Sufficient Interest in Current Circumstances
+		- Clematis
+			- Always in Future thoughts
+			- Doesn't do action but always live in dreams
+			- Too lazy or too much patient
+			- Whatever happens they don't care and stay calm without any action
+		- Honey Suckle
+			- living in Past Life
+			- Always feels happy and sad on thinking of past life or events or occasions
+		- Wild Rose
+			- Always stay take it easy
+			- They don't take care about any issue or incident or failure and no efforts kept to improve or bring change and stay take it easy
+		- Olive
+			- Exhausted physically or mentally with no energy to do anything further
+			- To get instant energy
+			- Feels like can't do anything more
+		- White Chestnut
+			- Feels like too much worry and heavy hearted
+			- Face Mental torture with infinite circling thoughts
+			- Lack of sleep due to cycling thoughts
+			- Manasula adhiga baarathala or kavalaila thookam varama irukurapa
+		- Mustard
+			- Stay very happy and suddenly become sad and can't explain why
+			- Dhideernu sogam aagi orama ukkaradhu or moolaila viluradhu
+			- Fall in depression suddenly in seconds
+		- Chestnut Bud
+			- Does same mistake repeatedly
+			- Improves Concentration and avoid mistakes or lack of concentration
+			- It is useful for childrens or for people with lack of maturity
+
+Indian Flower Medicine
+- Fear
+	- Sarakondai
+	- Rheumatoid Arthiritis
+	- Ring Worms
+	- Continous Cough
+	- Skin Diseases
+- Brahmi
+	- Brain Related problems
+	- Alzhimers
+	- Lack of Memory
+- Aduku Nandhiyavattai
+	- All Eye Problems
+- Kesavardhini
+	- All Hair Problems
+- Over Care for Welfare of Others
+	- Chicory
+		- Emotional Attack
+		- Always try to correct others
+		- Possessivness
+		- Over Care for welfare of others
+		- Acts like not feeling well to ensure others care for them
+	- Vervain
+		- Yaam petra inbam peruga vayagam
+		- They have good ideas and principles and makes others to do the same even if they don't like
+		- Avanga ennathukula matravangala mathuvaanga
+		- At any cost they make others to do and work addict
+		- They do work even if they are not well and ensure their duties are completed while other can't even do the work
+	- Vine
+		- They are confident, very capable and ensure of success and makes others slave with a thought of doing good for others
+		- Even if they are not well they makes assistants to work for them
+		- Avanga not well but mathavangala avangaluku thevayana visayam senjithara order poduvanga
+		- They are rude
+	- Beech
+		- They are not tolerant
+		- Expect everything to be 100% perfect even small things also
+		- If something is not neat or perfect they get tension and shout at others
+		- Whatever you show, they find mistakes in it
+	- Rock Water
+		- They insist themselves if they didn't do something
+		- If they failed ot wake up, they punish themselves
+		- Hard Master of themselves
+		- Attitude is like Rock to denote water flow
