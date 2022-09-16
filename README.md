@@ -114,3 +114,83 @@ Indian Flower Medicine
 		- If they failed ot wake up, they punish themselves
 		- Hard Master of themselves
 		- Attitude is like Rock to denote water flow
+
+Latest Understanding
+
+Loneliness
+- Impatients
+	- Porumai illama udane velai mudiyanum endra manathathuvam
+	- Thamadhathaal kovam varuvathu
+	- Loneliness due to impatience
+- Heather
+	- Speaks about only negativeness or negative thoughts
+	- Always keeps on speaking about his/her own negativity and doesn't let others to share their thoughts
+- Water Violet
+	- People are well talented but likes to be alone
+	- Thinks spending time with others is timewaste and tries to be alone
+	- Doesn't showcase their talent volunteerly and pokes others as front place
+	- Live like a cat
+
+Fear Group
+- Rock Rose
+	- Dhigil bayam
+		- fear due to shock or unexpected incident and stuck at for a momonet
+		- E.g. tsunami, earthquake, mindblock for a moment or stunned fear
+		- Situational Remedy
+		- Limited time remedy
+		- Unexplainable fear
+- Mimulus
+	- Explainable fear
+	- Fear of something like height, water, a place, a disease
+	- Fear of something
+	- Oru vishayatha partha or oru yedathala pona or stage fear etc
+- Cherry Plum
+	- Thannaye elandhuduvomo
+	- Uncontrollable fear
+	- E.g. 6 maniku sarakadikalana kai kaal odharum or shivering
+	- If don't smoke, mindo doesn't work or mind blocked etc
+	- Knows its wrong but can't controll himself
+	- In a situation, where he lost control of him/herself
+	- If a person is taken away, he killed his mom as he was playing pubg
+- Aspen
+	- Unexplainable Fear
+	- Fear kills him/her day & night and he can't explain the fear to others
+	- Imaginary fear
+	- Fear of affected by corona or other illness
+	- Edho nadanthidumo antu bayapaduradhu
+	- Nadandhudumo, aayidumo, poyidumo
+	- Unexplainable fear, inner fear looks confident outside
+- Red Chesnet
+	- Over Care on loved ones
+	- Fear of something happen to someone due to love or possessiveness
+
+Uncertainity
+- Cerato
+	- Not sufficient confident in themselves
+	- Looks for advise from others always but never makes decision
+	- Always stay in confusion like fool
+- Scleranthus
+	- They can't decide with 2 choices
+	- E.g. you have 2 paths to choose but he/she will never decide any path
+	- Tholainookuparvai kammiya irukurappo payanpaduthalaam
+	- What to do in future, this or that confusion
+- Gentian
+	- Untill everything goes well, they are happy once there is a failure they can't recover from it
+	- If good, they are good if soemthing unexpected happens, they give up forever, then never do it again
+	- E.g. Person ranks 1st always, suddenly they got rank 2 then they loose hope and feels like they can't do it
+- Gorse
+	- Completely Hopeless state
+	- Nambikayatra thanmai
+	- If gives small hope, they attempt to move
+	- Someone Should give hope
+- Hornbeam
+	- Feeling weak in mind and mentally level
+	- Feels burden to routine works or regular tasks
+	- Physically fit but mentally weak and feels burden to do anything
+- Wild Oat
+	- Direction flower
+	- Shows direction in life
+	- Likes to feel everything business, project, task etc
+	- Nischayamatra thanmai
+	- Edhai senjaalum konjanaal panitu apuram innonu aarambikuradhu
+	- Starts a task for a while and after sometime they start another activity before completing the first one
