@@ -4,6 +4,19 @@ Flower Medicine
 820667120
 ##Dr Seshathri
 8838793089
+
+Sleeplessness
+- Due to future thoughts
+	- Clematis
+- Due to Past thoughts
+	- Honey Suckle
+- Due to lot of unnecessary thoughts that is killing
+	- White chesnet
+
+Combination
+- Cerato + Whitechesnet
+	- Kolappama irukuradhu, thevayatra ennangal adhigama irukuradhu adhanaal manadhalavil torture anubavippathu
+
 Heal Thyself
 - Loneliness
 	- 3 Flowers
@@ -194,3 +207,87 @@ Uncertainity
 	- Nischayamatra thanmai
 	- Edhai senjaalum konjanaal panitu apuram innonu aarambikuradhu
 	- Starts a task for a while and after sometime they start another activity before completing the first one
+
+Not sufficient interest in present circumstances
+- Tharpodhaya nilaimaila endha aarvam or intest illama irukuradhu
+- E.g. getting bored and don't know what to do situation
+
+Clematis
+- Live in future thoughts
+- Imagine to achieve something but never do anything
+- Person will be very relaxed and thinks to do things later
+- E.g. Appurama paathukulam, nidhanama pannikalam, idhu pogum futurela nalla vaalalam
+- Talks about future plans and important things but they don't do anything to achieve it
+- Epavume melnooki yosichite irupaanga
+
+Honey Suckle
+- Always live with past thoughts but doesn't focus on current situations
+- Feels happy & sad with past thoughts
+- Worry with memories of past circustances and time spent with people
+
+Wild Rose
+- Take it easy policy for whatever happens in life or situations
+- Enna nadanthalum paravala nu vaalradhu
+	- E.g. If failed in exam, feels oh failed in exam only its okay
+	- E.g. If company may face loss due to something, feels paravaala paathukulaam
+	- Enna dhaan serious ah pesunaalum or nadanthaalum, paravaala paathukulam antu freeya irukuradhu
+	- Evlo kashtam vandhalum paravala paathukulam
+	- Take it easy for whatever happens and don't take any action for it
+	- Slow Response, Lack of effort
+
+Olive
+- Mentally & physically exhausted
+- Gives Instant Energy
+- Person becomes too much tired and face looks too dull
+
+White Chesnet
+- Feels like heavy head due to lot of unnecessary thoughts
+- Feels mental torture due to lot of thoughts and lost in loop of thoguhts
+- Prepared with thoughts to speak to someone tomo
+- Sleeplessness due to unnecessary thoughts
+
+Mustard
+- Person live happy suddenly fail in depression with no words and can't explain the reason
+- they won't be happy after the sudden depression
+- Fail sudden depression and site asaid with no words
+
+Chesnet Bud
+- Repeats same mistake everytime in any perspective
+- E.g. Forget bike key everyday and reminds when they reach the bike
+- E.g. Ellam nalla pandran aana +, _ kita matum kota vituran
+- E.g. Ellam correct ah seiran aan uppu matum konjam adhigama poturan
+- helps to concentrate on whats going wrong and correct
+- Maturity less people
+	- E.g. If person has 40 yrs age but no maturity
+- People doesn't act as per age or behaves like a child with no maturity
+- Able to focus and identify the problem
+
+Over Care of Welfare of others
+
+Chicory
+- Emotional attack on people or higher posessiveness
+- Keep on correcting people and they enjoy doing it
+- Says ellam unakaaga dhaan seirenda or senjenda
+
+Vervain
+- People with great goals/ideas
+- People are very sensitive for aniyayam
+- People are workaholic like they sleep only when it is completed
+- Many would have given up but they complete it
+- Though they are physically & mentally exhausted but they like to do work and complete the task since they are the one to do it
+- They try to convince people to do what they say as they got good results out of their experience
+
+Vine
+- Dominate people to do what they say
+- They are capable and know everything due to that they act like dominating
+
+Beech
+- Act like a critic
+- Expect everything to be perfect with no minor changes
+- Finds faults in everyone and everything
+- Torture everyone to ensure everything to be perfect
+- E.g. got anger if you mistakenly place one thing in another place
+
+Rock Water
+- Try to be strict on themselves as a result they loose happiness, joy etc.
+- Rock thoughts that ensures to achieve the goal if not acieved they feel low and becomes more stricter to themselves
